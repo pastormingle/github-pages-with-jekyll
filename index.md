@@ -1,3 +1,3 @@
 # Welcome to my blog
-
+the first rule here is we never talk about fight club
 I'm glad you are here. I plan to talk about ...
